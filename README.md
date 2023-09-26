@@ -1,0 +1,4 @@
+- 👋 Hej, jag heter @Melvin-Bubini
+- 👀 Mitt största intresse är handboll och fotboll
+- 🌱 Jag studerar webbutvekling
+- 📫 Min mail är mebu2300@student.miun.se
